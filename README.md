@@ -1,2 +1,2 @@
 # 海角社区 最新网址
-# 最新地址 http://jierbangying.com
+# 最新地址 uu9494.com
